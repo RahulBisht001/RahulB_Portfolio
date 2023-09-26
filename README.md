@@ -2,4 +2,4 @@
 
 * I am Currently working on it
 
-* [Follow Me on LinkedIn](https://www.linkedin.com/in/RahulB001/)
+* Follow Me on  [LinkedIn](https://www.linkedin.com/in/RahulB001/)
